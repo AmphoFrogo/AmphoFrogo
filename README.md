@@ -2,7 +2,7 @@
 - 👀 I’m interested in cars and programming
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on anything ig
-- 📫 How to reach me - Ampho Frogo on YT
+- 📫 How to reach me - Srabon Hoq on LinkedIn
 
 <!---
 AmphoFrogo/AmphoFrogo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
