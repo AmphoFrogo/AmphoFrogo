@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AmphoFrogo
+- 👋 Hi, I’m Srabon!
 - 👀 I’m interested in cars and programming
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on anything ig
